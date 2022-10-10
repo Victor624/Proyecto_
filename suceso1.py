@@ -19,3 +19,6 @@ Es Probable que haya cambios
 se me olvifo  de hacer 
 
 no se como levantarlo
+
+
+Le estoy enseñando a mi hijo las partes del corazon
