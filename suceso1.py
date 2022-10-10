@@ -7,3 +7,6 @@ Por segunda ves estoy tratando de enteder este programa
 
 
 Creo qu voy a poder mandar el archivo a todos los competidores
+
+
+Es Probable que haya cambios
